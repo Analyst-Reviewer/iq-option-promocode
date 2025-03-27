@@ -39,6 +39,11 @@ IQ Option also offers a **free risk promo code** that allows you to trade withou
 
 > **Important:** You cannot use the **50% deposit bonus** if you choose to apply the **IQ25** free risk promo code.
 
+## More binary options Promo Code for the new users:
+- [Olymp Trade Promo Code](https://github.com/Analyst-Reviewer/olymotrade-promocode)
+- [Expert Option Promo Code](https://github.com/Analyst-Reviewer/expert-option-code/)
+- [Exnova Promo Code](https://github.com/Analyst-Reviewer/exnova-promo-code)
+  
 ## Why Take Advantage of the IQ Option Bonus?
 
 - **Increased Trading Power**: More funds allow you to open larger positions and explore various trading strategies.

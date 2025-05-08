@@ -65,4 +65,5 @@ Seize the opportunity to maximize your trading capital with **IQ Option**. By si
 **Note:** Always review the bonus terms and conditions before participating. Trading involves risks, and you may lose your invested capital.
 
 **Disclaimer:** This article contains a referral link. By using it, you support us while gaining access to exclusive bonuses.
-
+## Follow us:
+[Mirror](https://mirror.xyz/0x80FCCE629e74dD107DE0a4050158385571b0667f)

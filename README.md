@@ -43,6 +43,7 @@ IQ Option also offers a **free risk promo code** that allows you to trade withou
 - [Olymp Trade Promo Code](https://github.com/Analyst-Reviewer/olymotrade-promocode)
 - [Expert Option Promo Code](https://github.com/Analyst-Reviewer/expert-option-code/)
 - [Exnova Promo Code](https://github.com/Analyst-Reviewer/exnova-promo-code)
+- [Exnova Review for the LATAM in Spanish](https://github.com/Analyst-Reviewer/Exnova-es-confiable)
   
 ## Why Take Advantage of the IQ Option Bonus?
 

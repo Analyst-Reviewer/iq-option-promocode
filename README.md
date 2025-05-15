@@ -1,6 +1,7 @@
 # IQ Option Deposit Bonus: Get a 50% Bonus on Your First Deposit
 
 Looking to increase your trading capital on a trusted **online broker**? With **IQ Option**, new users can now receive a **50% bonus on their first deposit**. This offer is perfect for those who want to start investing in **forex**, **binary options**, **cryptocurrencies**, and more, using a secure and intuitive trading platform.
+
 <a target="_blank" href="https://affiliate.iqbroker.com/redir/?aff=751494&aff_model=revenue&afftrack=">
   <img alt="banner image" src="https://static.cdnaffs.com/files/storage/public/ch/dq/va261vdvgrt4oe70.jpg" width="736" height="385" />
 </a>
